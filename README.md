@@ -1,0 +1,2 @@
+# Kamal
+Mining tht
